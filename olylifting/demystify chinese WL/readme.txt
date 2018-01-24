@@ -1,0 +1,5 @@
+- Role of "active lifting" 
+- Importance of mobility
+- Importance of proprioception  (looking into mirror when lifting)
+- Importance of quad strength and glute strength balance (jerk dipping example)
+- Full core example/ bracing 
